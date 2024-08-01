@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-![image](https://github.com/user-attachments/assets/422118c7-6396-4403-ba5b-c4be5fc54da4)
+https://media1.tenor.com/m/vN52zBYN4KIAAAAd/bistecone-twitch.gif
